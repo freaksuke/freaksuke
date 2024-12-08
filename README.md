@@ -1,6 +1,8 @@
 **guys :( github is so scary and Hard.**</br>
 I <ins>really like</ins> following ppl on here. apologies if that makes any of you uncomfortable, feel free to block me! ❤️‍🩹
 ***
+![](https://i.postimg.cc/N0WzDmr7/mouthwashing.gif)
+***
 **ME**</br>
 — ⠀⠀<ins>**Callie**</ins> or <ins>**Cal**</ins>⠀⠀|⠀⠀<ins>He</ins> or Pronouns of Character</br>
 ——— ⠀⠀you can find me as: any mouthwashing character … erm not much else</br>
