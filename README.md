@@ -1,16 +1,14 @@
-## Hi there 👋
+guys :( github is so scary and Hard.
 
-<!--
-**freaksuke/freaksuke** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I really like following ppl on here. apologies if that makes any of you uncomfortable … ❤️‍🩹
 
-Here are some ideas to get you started:
+— Callie or Cal : He or Pronouns of Character
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+———> you can find me as: any mouthwashing character, 
+
+— HUGE. huge. mouthwashing fan. 
+
+———> please talk to me about it like i'll die. give me a hottake or something. even on my atabook. i'll write so much in reply ON GOD!
+
+—————> hmu if you wanna see my shrine. i'm proud.
+—
