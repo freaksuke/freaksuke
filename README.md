@@ -2,8 +2,7 @@ guys :( github is so scary and Hard.
 
 I really like following ppl on here. apologies if that makes any of you uncomfortable … ❤️‍🩹
 
-— Callie or Cal : He or Pronouns of Character
-
+— Callie or Cal : He or Pronouns of Character</br>
 ———> you can find me as: any mouthwashing character, 
 
 — HUGE. huge. mouthwashing fan. 
