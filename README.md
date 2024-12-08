@@ -4,6 +4,7 @@ I <ins>really like</ins> following ppl on here. apologies if that makes any of y
 **ME**</br>
 — ⠀⠀<ins>**Callie**</ins> or <ins>**Cal**</ins>⠀⠀|⠀⠀<ins>He</ins> or Pronouns of Character</br>
 ——— ⠀⠀you can find me as: any mouthwashing character … erm not much else</br>
+————— ⠀⠀[main rentry](https://rentry.co/daisuke)⠀⠀|⠀⠀[ponytown rentry](https://rentry.co/met)⠀⠀|⠀⠀[atabook](https://freaksuke.atabook.org)</br>
 ***
 **BYI**</br>
 — ⠀⠀I often cuddle with people who have c+h in their name. </br>
