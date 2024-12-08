@@ -1,8 +1,5 @@
 **guys :( github is so scary and Hard.**</br>
-⠀</br>
-
-I <ins>really like</ins> following ppl on here. apologies if that makes any of you uncomfortable, feel free to block me! ❤️‍🩹</br>
-⠀</br>
+I <ins>really like</ins> following ppl on here. apologies if that makes any of you uncomfortable, feel free to block me! ❤️‍🩹
 ***
 **ME**</br>
 — ⠀⠀<ins>**Callie**</ins> or <ins>**Cal**</ins>⠀⠀|⠀⠀<ins>He</ins> or Pronouns of Character</br>
