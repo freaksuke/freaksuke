@@ -23,13 +23,13 @@ I <ins>really like</ins> following ppl on here. apologies if that makes any of y
 ⠀</br>
 ⠀</br>
 **DNI**</br>
-— ⠀⠀under 15, over … idk i don't. really care how old you are as long as you're not that young. don't be weird! </br>
+— ⠀⠀under 15, over … idk I don't. really care how old you are as long as you're not that young. don't be weird! </br>
 ——— ⠀⠀any fandom is fine. though I likely won't like you if you're active on SHEDTWT or anything like that.</br>
 ————— ⠀⠀**PLEASE. DO NOT. MAKE JOKES OR MENTION *ANYTHING* RELATING TO ANYA'S ASSAULT TO ME.**</br>
 ————— ⠀⠀**whether I am Jimmy or Anya. do not. there are no consequences, you're just … embarrassing.**</br>
 ***
 **EXTRA INFO**</br>
 — ⠀⠀HUGE. huge. mouthwashing fan. </br>
-——— ⠀⠀please talk to me about it like i'll die. give me a hottake or something. even on my atabook. i'll write so much in reply ON GOD!</br>
-————— ⠀⠀hmu if you wanna see my shrine. i'm proud.</br>
+——— ⠀⠀please talk to me about it like I'll die. give me a hottake or something. even on my atabook. I'll write so much in reply ON GOD!</br>
+————— ⠀⠀hmu if you wanna see my shrine. I'm proud.</br>
 ***
