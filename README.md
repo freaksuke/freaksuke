@@ -1,6 +1,17 @@
 **guys :( github is so scary and Hard.**</br>
 I <ins>really like</ins> following ppl on here. apologies if that makes any of you uncomfortable, feel free to block me! ❤️‍🩹
 ***
+### <ins>TRADE OFFER</ins></br>
+send "accepted" to my atabook w/ your github linked</br>
+</br>
+**YOU RECIEVE:**</br>
+someone to afk with you whenever we're both online.</br>
+
+**I RECIEVE:**</br>
+not looking lonely.</br>
+</br>
+tempting eh?
+***
 ![](https://i.postimg.cc/N0WzDmr7/mouthwashing.gif)
 ***
 **ME**</br>
