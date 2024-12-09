@@ -6,6 +6,7 @@ I <ins>really like</ins> following ppl on here. apologies if that makes any of y
 **ME**</br>
 — ⠀⠀<ins>**Callie**</ins> or <ins>**Cal**</ins>⠀⠀|⠀⠀<ins>He</ins> or Pronouns of Character</br>
 ——— ⠀⠀you can find me as: any mouthwashing character … erm not much else</br>
+————— ⠀⠀**by the way: I hangout as Anya because she's cute, not because I identify with her.**</br>
 ————— ⠀⠀[main rentry](https://rentry.co/daisuke)⠀⠀|⠀⠀[ponytown rentry](https://rentry.co/met)⠀⠀|⠀⠀[atabook](https://freaksuke.atabook.org)</br>
 ***
 **BYI**</br>
