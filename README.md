@@ -36,6 +36,7 @@ tempting eh?
 **DNI**</br>
 — ⠀⠀under 15, over … idk I don't. really care how old you are as long as you're not that young. don't be weird! </br>
 ——— ⠀⠀any fandom is fine. though I likely won't like you if you're active on SHEDTWT or anything like that.</br>
+
 ————— ⠀⠀**PLEASE. DO NOT. MAKE JOKES OR MENTION *ANYTHING* RELATING TO ANYA'S ASSAULT TO ME.**</br>
 ————— ⠀⠀**whether I am Jimmy or Anya. do not. there are no consequences, you're just … embarrassing.**</br>
 ***
@@ -44,3 +45,4 @@ tempting eh?
 ——— ⠀⠀please talk to me about it like I'll die. give me a hottake or something. even on my atabook. I'll write so much in reply ON GOD!</br>
 ————— ⠀⠀hmu if you wanna see my shrine. I'm proud.</br>
 ***
+![:freaksuke](https://count.chiya.dev/get/@:freaksuke)
