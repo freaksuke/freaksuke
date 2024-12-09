@@ -1,17 +1,14 @@
-I really like following ppl on here. apologies if that makes any of you uncomfortable, feel free to block me or whatever needs to be done
+I really like following ppl on here. apologies if that makes any of you uncomfortable, feel free to block me or whatever needs to be done</br>
 ***
-![](https://i.postimg.cc/N0WzDmr7/mouthwashing.gif)
-***
+![](https://i.postimg.cc/N0WzDmr7/mouthwashing.gif)</br>
+
 **ME**</br>
 — ⠀⠀<ins>**Callie**</ins> or <ins>**Cal**</ins>⠀⠀|⠀⠀<ins>He</ins> or Pronouns of Character</br>
-——— ⠀⠀you can find me as: any mouthwashing character … erm not much else</br>
-————— ⠀⠀**by the way: I hangout as Anya because she's cute, not because I identify with her.**</br>
-————— ⠀⠀[ponytown rentry](https://rentry.co/met)⠀⠀|⠀⠀[atabook](https://freaksuke.atabook.org)</br>
-***
+——— ⠀⠀[ponytown rentry](https://rentry.co/met)⠀⠀|⠀⠀[atabook](https://freaksuke.atabook.org)</br>
+</br>
 **INT**</br>
 — ⠀⠀other mouthwashing fans... duh… </br>
 ——— ⠀⠀RENTRYERS! I'm quite active in the rentry community, so I like talking about urls and whatnot.</br>
 ————— ⠀⠀^^*(shoutout to ppl who know me as the [**/daisuke**](https://rentry.co/daisuke) owner)*</br>
-————— ⠀⠀also, I like Alien Stage, Ace Attorney, The Summer Hikaru Died, Haikyuu, NGE… [+](stuff)</br>
 ***
 ![:freaksuke](https://count.chiya.dev/get/@:freaksuke)
