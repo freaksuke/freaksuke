@@ -19,6 +19,7 @@ I <ins>really like</ins> following ppl on here. apologies if that makes any of y
 — ⠀⠀other mouthwashing fans... duh… </br>
 ——— ⠀⠀RENTRYERS! I'm quite active in the rentry community, so I like talking about urls and whatnot.</br>
 ————— ⠀⠀^^*(shoutout to ppl who know me as the [**/daisuke**](https://rentry.co/daisuke) owner)*</br>
+————— ⠀⠀also, I like Alien Stage, Ace Attorney, The Summer Hikaru Died, Haikyuu, NGE… [+](stuff)</br>
 ⠀</br>
 ⠀</br>
 **DNI**</br>
