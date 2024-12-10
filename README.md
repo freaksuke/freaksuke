@@ -4,6 +4,8 @@ hi i am <ins>**callie**</ins> or <ins>**cal**</ins>, i use <ins>**he**</ins> or 
 umm i make rentries so here's my [ponytown rentry](https://rentry.co/met), as well as my [atabook](https://freaksuke.atabook.org)</br>
 -  rentryers talk to me…i'm quite active in the rentry community, so i like talking about urls and whatnot.</br>
   - ^^*(shoutout to ppl who may know me as the [**/daisuke**](https://rentry.co/daisuke) owner)*</br>
+  
+i don't kin any of my ponies by the way. i know that makes some people uncomfy or whatnot... i just find the characters cute :)
 ***
 ![](https://i.postimg.cc/N0WzDmr7/mouthwashing.gif)</br>
 ***
