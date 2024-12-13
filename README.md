@@ -1,5 +1,8 @@
 i like following ppl on here</br>
 </br>
+![](https://i.postimg.cc/wM0jfTHS/noel.gif)</br>
+-  *(^^ meeee btw)*</br>
+
 hi i am <ins>**callie**</ins> or <ins>**cal**</ins>, i use <ins>**he**</ins> or the pronouns of my character</br>
 umm i make rentries so here's my [ponytown rentry](https://rentry.co/met), as well as my [atabook](https://freaksuke.atabook.org)</br>
 -  rentryers talk to me…i'm quite active in the rentry community, so i like talking about urls and whatnot.</br>
