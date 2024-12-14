@@ -1,6 +1,6 @@
 i like following ppl on here</br>
 </br>
-![](https://i.postimg.cc/wM0jfTHS/noel.gif)</br>
+![](https://i.postimg.cc/tCgCnF3p/noel.gif)</br>
 -  *(^^ [meeee](https://rentry.co/overseer) btw)*</br>
 
 hi i am <ins>**callie**</ins> or <ins>**cal**</ins>, i use <ins>**he**</ins> or the pronouns of my character</br>
