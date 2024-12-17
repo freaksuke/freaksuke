@@ -10,7 +10,7 @@ my discord is [@spaceboyf](https://discordid.netlify.app/?id=899152970917216299)
   - ^^*(shoutout to ppl who may know me as the [**/daisuke**](https://rentry.co/daisuke) owner ![](https://i.postimg.cc/B6NNB6Mr/Layer-64.png) )* </br>
     - ^^*(or as @STREAMER on retrospring… ![](https://i.postimg.cc/xdv6qgHT/Layer-58.png) )*</br>
   
-i don't kin any of my ponies by the way. i know that makes some people uncomfy or whatnot (doubles, or something) ... i just find the characters cute ![](https://i.postimg.cc/jj08sBDF/Layer-6.png)
+i don't kin any of my ponies by the way. ik some people are wary about doubles and whatnot ... i just find the characters cute ![](https://i.postimg.cc/jj08sBDF/Layer-6.png)
 ***
 ![](https://i.postimg.cc/N0WzDmr7/mouthwashing.gif)</br>
 ***
