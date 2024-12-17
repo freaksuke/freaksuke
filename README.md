@@ -16,10 +16,5 @@ i don't kin any of my ponies by the way. ik some people are wary about doubles a
 ***
 OOMF sometimes borrows my ponies so. there is a chance if u were to recognize me, it's not me...   ![](https://i.postimg.cc/FscggRZJ/image-psd-126.png)</br>
 -  OOMF = love of my edater life, @unserenal… ![](https://i.postimg.cc/3NcBzqM9/Layer-45.png) ![](https://i.postimg.cc/3NcBzqM9/Layer-45.png) ![](https://i.postimg.cc/3NcBzqM9/Layer-45.png)</br>
-</br>
-**some other things i love**</br>
-nitro chiral games, ace attorney (particularly TGAA), detroit become human (rip my old dbh ponytown group), danganronpa (k1-b0 stan), and the promise of hope (none of u know what that is. sorry i included it)</br>
-
--  don't play w me about n+c games. don't think i just mean dmmd. sweet pool is absolute peak. i have all of them and have Played all of them. I am a Shui stan. I am a Keisuke stan. I fw mizuki dmmd a LITTLE BIT. slwdmg is mid. I am a Makoto Mita stan.
 ***
 ![:freaksuke](https://count.chiya.dev/get/@:freaksuke)
